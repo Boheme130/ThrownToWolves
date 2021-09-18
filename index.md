@@ -1,4 +1,6 @@
 ## Thrown to the Wolves
+[回到主页](https://boheme130.github.io/Fiction.git.io/)
+
 ![avatar](https://2sbgyc1f1mp33x86au2pk3cg-wpengine.netdna-ssl.com/wp-content/uploads/sites/3/2018/02/Winter-Blues_.jpg)
 <br>
 <br>
