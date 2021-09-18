@@ -3,9 +3,9 @@
 <br>
 <br>
 
-作品：Thrown to the Wolves
-作者：Charlie Adhara
-评分：4.5/5
+作品：Thrown to the Wolves <br>
+作者：Charlie Adhara <br>
+评分：4.5/5 <br>
 
 虐，见狼人家长，家族drama，双强恋人组合，悬疑侦探，意料外结尾，HE
 
